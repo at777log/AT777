@@ -40,4 +40,4 @@ Setelah mengunduh dan menginstal, buka aplikasi, lakukan login, dan nikmati berb
 
 ### 📌 Kesimpulan
 
-[**AT777**](https://github.com/AT777) APK adalah pilihan yang tepat untuk pemain yang menginginkan pengalaman bermain slot dan kasino yang aman, lancar, dan menyenangkan di Android. Dengan beragam permainan, login aman, dan bonus harian, AT777 siap menjadi platform hiburan favorit Anda di 2024.
+[**AT777**](https://github.com/at777log/AT777) APK adalah pilihan yang tepat untuk pemain yang menginginkan pengalaman bermain slot dan kasino yang aman, lancar, dan menyenangkan di Android. Dengan beragam permainan, login aman, dan bonus harian, AT777 siap menjadi platform hiburan favorit Anda di 2024.
